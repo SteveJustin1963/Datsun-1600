@@ -12,6 +12,7 @@ You know you really want one, any one will do.
 
 
 ## Leave no man behind !
+```
 We set out to restore a legend,
 A car that's meant to last,
 A Datsun 1600 we'd refurbish,
@@ -36,6 +37,6 @@ A modern classic, it'll roll down roads,
 With the same spirit that it had,
 And as a symbol of our passion,
 It will always be remembered as a "Rad."
-
+```
 
 
