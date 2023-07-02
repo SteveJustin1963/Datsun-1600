@@ -8,7 +8,7 @@ Without the Nissan name, Datsun, they mourn,
 Everyday day another 510 is reborn and it won't fall apart!
 Some say they're nice, while others burn rice,
 But when the light turns green, that engine is mean!
-ReReady set go, rumble dont stumble, tires smoke thick and white,
+Ready set go, rumble dont stumble, tires smoke thick and white,
 Girls beam, crowds scream, watch you go!
 You crave one, any will do, day and night.
 ```
